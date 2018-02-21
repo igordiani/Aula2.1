@@ -1,1 +1,3 @@
-# Aula2.1
+Debora Seco
+Cristina Lopes
+DIDI
